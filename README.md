@@ -1,5 +1,5 @@
 # MSPM
-## Microsoft Project Management Professional Certificate
+## Microsoft Project Management Professional Certificate (9 course series)
 
 Through 2027, the project management-oriented labor force in seven project-oriented sectors is expected to grow by 33 percent or nearly 22 million new jobs. Prepare for a new career in this high-demand field with professional training from Microsoft.
 
